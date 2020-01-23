@@ -1,2 +1,2 @@
 # Ronny
-This is a peom about Ronny
+This is a poem about Ronny
